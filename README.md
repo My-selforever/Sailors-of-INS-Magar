@@ -1,1 +1,0 @@
-# Sailors-of-INS-Magar
